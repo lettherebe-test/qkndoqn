@@ -1,2 +1,0 @@
-# qkndoqn
-blah blah blah
